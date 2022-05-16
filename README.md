@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @GameMaker60
+- 👀 I’m interested in Gaming and coding.
+- 🌱 I’m currently a student.
+- 📫 You can reach me via my discord (GameMaker#7056)
